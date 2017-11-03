@@ -1,2 +1,2 @@
-Hi! I'm Aditi Mantri.
+Hi! My name is Aditi Mantri.
 I'm from Indore.
